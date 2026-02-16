@@ -1,0 +1,1 @@
+# kernel-binary-for-infinix-hot-11-play
